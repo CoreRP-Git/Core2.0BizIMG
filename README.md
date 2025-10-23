@@ -1,3 +1,7 @@
-# Business Logos for roleplay services/businesses 
+# Business Logos for Roleplay Services / Businesses
 
-# A few is for norwegian-servers also will at some point be added a few customs one that resides on the norwegian small non wl server named "Plaza Rollespill"
+A selection of logos for roleplay services and businesses. Some of these are designed specifically for Norwegian servers, while others are more generic and could fit any roleplay community.
+
+Note:
+
+Most logos here are custom-made, But some are generic placeholders.
